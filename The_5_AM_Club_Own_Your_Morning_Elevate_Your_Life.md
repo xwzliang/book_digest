@@ -1,0 +1,6 @@
+- In a culture of cyber-zombies, addicted to distraction and afflicted with interruption, the wisest way to guarantee that you consistently produce mastery-level results in the most important areas of your professional and personal life is to install a world-class morning routine. Winning starts at your beginning. And your first hours are when heroes are made. 
+Wage a war against weakness and launch a campaign against fearfulness. You truly can get up early. And doing so is a necessity in your awesome pursuit toward legendary. 
+Take excellent care of the front end of your day, and the rest of your day will pretty much take care of itself. Own your morning. Elevate your life.
+
+
+- I show up here to renew and refuel. Elite production without quiet vacation causes lasting depletion. Rest and recovery isn't a luxury for anyone committed to mastery—it's a necessity. I've taught that principle for many years —yet I forgot it myself, and paid the price at the event. I've also learned that inspiration gets fed by isolation, away from the ceaseless digital diversion and mindless overcommunication that dominates the hours of the majority these days. And, know too that your natural genius presents itself when you're most joyful. We get our ideas that change the world when we're rested, relaxed and filled with delight.
