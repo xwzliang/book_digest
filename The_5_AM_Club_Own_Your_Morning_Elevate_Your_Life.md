@@ -4,3 +4,9 @@ Take excellent care of the front end of your day, and the rest of your day will 
 
 
 - I show up here to renew and refuel. Elite production without quiet vacation causes lasting depletion. Rest and recovery isn't a luxury for anyone committed to mastery—it's a necessity. I've taught that principle for many years —yet I forgot it myself, and paid the price at the event. I've also learned that inspiration gets fed by isolation, away from the ceaseless digital diversion and mindless overcommunication that dominates the hours of the majority these days. And, know too that your natural genius presents itself when you're most joyful. We get our ideas that change the world when we're rested, relaxed and filled with delight.
+
+
+- You can pretty much dominate your fields because so few are like this now. Raise your commitment. Step up your standards. And then get busy on hardwiring in this way of being as your default. And that's really important: you have to optimize daily. Consistency really is the DNA of mastery. And small, daily, seemingly insignificant improvements when done consistently over time yield staggering results. Please remember that great companies and wonderful lives don't happen by sudden revolution. Nope. They materialize via incremental evolution. Tiny, daily wins and iterations stack into outcomes of excellence, over the long-term. But few of us have the patience these days to endure the long game. As a result, not many of us ever become legends.
+
+
+- The Spellbinder taught me early on that by joining The 5 AM Club, I'd have a gorgeous window of opportunity every morning to cultivate my highest assets, take some time for myself and do the preparation needed for me to make each day a tiny gem. He helped me understand that successful people use their mornings well and that by rising before daybreak, I'd win a primary victory that would set me up for a triumphant day.
