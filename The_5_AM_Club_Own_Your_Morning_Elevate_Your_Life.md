@@ -20,3 +20,7 @@ Take excellent care of the front end of your day, and the rest of your day will 
 
 
 - “Here's the real takeaway,” the billionaire carried on. “Elite producers and everyday heroes understand that what you do each day matters far more than what you do once in a while. Consistency really is a key ingredient of mastery. And regularity is a necessity if you're amped to make history.”
+
+
+- “Science now confirms that our brains can continue to grow throughout our lives. This beautiful phenomenon is called neuroplasticity. And it speaks to the fact that the human brain, like personal willpower, is a lot more like a muscle than previously understood. It's plastic in a way. Push it and it'll expand. Flex it and it'll extend—and become more potent for your use in the tallest expression of your most radiant gifts. So, you want to make sure you exercise your brain aggressively to make new habits like getting up early your new normal. Neurons that fire together, wire together, you know? As you repeat the routine you wish to add to your lifestyle, it becomes easier—and more familiar. That's a really important point to contemplate. And then act on.” 
+“I've never been aware that we actually have the ability to grow our brains,” noted the entrepreneur excitedly. “And I guess what you're saying is the more we practice a fresh habit, the more our brains will work with us and evolve to make it part of who we are. Right?”
